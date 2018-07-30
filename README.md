@@ -1,5 +1,4 @@
-# Project Soundtracks
-🎧 List of best Soundtracks to boost your Productivity and Focus
+![](https://i.imgur.com/ElEGCFe.png)
 
 ### 1. Interstellar OST 🚀
 
