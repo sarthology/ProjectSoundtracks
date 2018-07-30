@@ -1,5 +1,8 @@
 ![](https://i.imgur.com/Erp7Fme.png)
 
+## Complete Albums
+
+
 ### 1. Interstellar OST 🚀
 
 🎼 **Music Composer:** Hans Zimmer
@@ -37,7 +40,7 @@
 🔗 **Links:**  Every easy to find but still [Spotify](https://open.spotify.com/album/13j3ElDigCRfvdcbgfxIpR?si=35fUKM9LTRev6NP0yugu_w), [Apple Music](https://itunes.apple.com/in/album/hobbit-desolation-smaug-original-motion-picture-soundtrack/738405384), [Youtube](https://www.youtube.com/watch?v=UrJTZZibdHk)
 
 
-### Solo soundtracks in the list 📝
+## Solo soundtracks in the list 📝
 
 * The Last of the Mohicans: Promontory 👉🏼 [Link](https://www.youtube.com/watch?v=9tjdswqGGVg)
 
@@ -74,7 +77,7 @@
 
 * Ennio Morricone - Il Buono, Il Brutto, Il Cattivo 👉🏼 [Link](https://www.youtube.com/watch?v=DR2NRwSpnK0)
 
-### Awesome Playlists 🎶
+## Awesome Playlists 🎶
 
 * Cinematic Chillout 👉🏼 [Link](https://open.spotify.com/user/spotify/playlist/37i9dQZF1DWVFJtzvDHN4L?si=eIu3bDgRTt2paCNJZKNOeQ)
 
