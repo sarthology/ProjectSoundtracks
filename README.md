@@ -1,4 +1,4 @@
-![](https://i.imgur.com/ElEGCFe.png)
+![](https://i.imgur.com/Erp7Fme.png)
 
 ### 1. Interstellar OST 🚀
 
