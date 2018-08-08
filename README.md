@@ -39,6 +39,13 @@
 
 🔗 **Links:**  Every easy to find but still [Spotify](https://open.spotify.com/album/13j3ElDigCRfvdcbgfxIpR?si=35fUKM9LTRev6NP0yugu_w), [Apple Music](https://itunes.apple.com/in/album/hobbit-desolation-smaug-original-motion-picture-soundtrack/738405384), [Youtube](https://www.youtube.com/watch?v=UrJTZZibdHk)
 
+### 6. Man of steel 💪🏻
+🎼 **Music Composer:**  Hans Zimmer
+
+👍🏻 **Best for:**  Extended Focus🔥
+
+🔗 **Links:**  Every easy to find but still [Spotify](https://open.spotify.com/album/4HhinqNembckw2pMoDWAZ4), [Apple Music](https://itunes.apple.com/us/album/man-steel-original-motion-picture-soundtrack-deluxe/642515245), [Youtube](https://www.youtube.com/watch?v=XaiNzHKm1Fk)
+
 
 ## Solo soundtracks in the list 📝
 
