@@ -91,3 +91,5 @@
 * This is Hans Zimmer 👉🏼 [Link](https://open.spotify.com/user/spotify/playlist/37i9dQZF1DWWF3yivn1m3D?si=e42LWTs9Q9OXEpPZzLkfwg)
 
 * Soundtracks for Studying 👉🏼 [Link](https://open.spotify.com/user/kobrie37/playlist/4FWcHo5LUmeLjczq3cAGy8?si=G1aoJK7zSX2J4PE2lcsQEA)
+
+* Songs for Editing by NPR Music Editor Stephen Thompson 👉🏼 [Link](https://open.spotify.com/playlist/33LkEWYi4Hd4SEp2NRFUDY)
