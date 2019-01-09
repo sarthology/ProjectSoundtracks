@@ -93,3 +93,22 @@
 * Soundtracks for Studying 👉🏼 [Link](https://open.spotify.com/user/kobrie37/playlist/4FWcHo5LUmeLjczq3cAGy8?si=G1aoJK7zSX2J4PE2lcsQEA)
 
 * Songs for Editing by NPR Music Editor Stephen Thompson 👉🏼 [Link](https://open.spotify.com/playlist/33LkEWYi4Hd4SEp2NRFUDY)
+
+## LoFi Playlists 💆🏻‍♀️
+
+* 26hr LoFi playlist, \_lofi_\, by josef,  👉🏼 [Spotify](https://open.spotify.com/user/1215285465/playlist/5XmYHmtEdKKC4dGg2skF7q?si=NDm19WXoQEGmhwknhHAzEQ)
+
+* The Chillhop Cafe,  👉🏼 [Spotify](https://open.spotify.com/user/chillhopmusic/playlist/0CFuMybe6s77w6QQrJjW7d?si=Kq79rQOyRXGhkytrUGqW1Q)
+
+* Rainy Lofi by clrnt3z,  👉🏼 [Spotify](https://open.spotify.com/user/clrnt3z/playlist/2NyQKPgxZROmEkKfBpZOFM?si=DFgzTmrORV2johTxJy0mXA)
+
+* Lofi Jazzhop beats by spangler123, 👉🏼 [Spotify](https://open.spotify.com/user/spangler123/playlist/2ZPX5cW5ytIktf4pdKzg0W?si=9PBqXHovS3O3RkT3ZIx2LQ)
+
+* Lofi hip hop beats - beats to study/relax/game to by Chillhop Music, 👉🏼 [Spotify](https://open.spotify.com/user/chillhopmusic/playlist/74sUjcvpGfdOvCHvgzNEDO?si=BABdIfZwRf2zDuRgCc-C8Q)
+
+* Jazz Vibes by Spotify, 👉🏼 [Spotify](https://open.spotify.com/user/spotify/playlist/37i9dQZF1DX0SM0LYsmbMT?si=g1QXp0ezSPCD7tnDAOUAbg)
+
+* Mellow Beats by Spotify, 👉🏼 [Spotify](https://open.spotify.com/user/spotify/playlist/37i9dQZF1DX3qCx5yEZkcJ?si=zIt5NNzeTdiREO5_DGYprQ)
+
+* Lush Lofi by Spotify, 👉🏼 [Spotify](https://open.spotify.com/user/spotify/playlist/37i9dQZF1DXc8kgYqQLMfH?si=koy_md9BRMahmkqNOZh3eg)
+
