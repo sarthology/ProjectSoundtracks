@@ -46,6 +46,13 @@
 
 🔗 **Links:**  Every easy to find but still [Spotify](https://open.spotify.com/album/4HhinqNembckw2pMoDWAZ4), [Apple Music](https://itunes.apple.com/us/album/man-steel-original-motion-picture-soundtrack-deluxe/642515245), [Youtube](https://www.youtube.com/watch?v=XaiNzHKm1Fk)
 
+### 7. Dark Matter (Instrumental) 🌚
+
+🎼 **Music Composer:** Les Friction
+
+👍🏻 **Best for:** Creative Work
+
+🔗 **Links:** [Spotify](https://open.spotify.com/album/45RfrazKDl8RD7FeYyMa4R?si=J2E3Kl_8SSaRBU4P_E9ymQ),
 
 ## Solo soundtracks in the list 📝
 
