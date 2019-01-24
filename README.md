@@ -52,7 +52,15 @@
 
 👍🏻 **Best for:** Creative Work
 
-🔗 **Links:** [Spotify](https://open.spotify.com/album/45RfrazKDl8RD7FeYyMa4R?si=J2E3Kl_8SSaRBU4P_E9ymQ),
+🔗 **Links:** [Spotify](https://open.spotify.com/album/45RfrazKDl8RD7FeYyMa4R?si=J2E3Kl_8SSaRBU4P_E9ymQ)
+
+### 8. Forgotten Stars 🌌
+
+🎼 **Music Composer:** Sergey Cheremisinov
+
+👍🏻 **Best for:** Deep Focus
+
+🔗 **Links:** [Spotify](https://open.spotify.com/album/2iunoVyadsUlaeNo0PyCNS), [FreeMusicArchive](https://freemusicarchive.org/music/Sergey_Cheremisinov/Forgotten_Stars/)
 
 ## Solo soundtracks in the list 📝
 
