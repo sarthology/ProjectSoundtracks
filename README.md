@@ -62,6 +62,13 @@
 
 🔗 **Links:** [Spotify](https://open.spotify.com/album/2iunoVyadsUlaeNo0PyCNS), [FreeMusicArchive](https://freemusicarchive.org/music/Sergey_Cheremisinov/Forgotten_Stars/)
 
+### 9. Chapter One/ Cold
+🎼 **Music Composer:**  Kai Engel
+
+👍🏻 **Best for:**  Focus
+
+🔗 **Links:**  [Spotify](https://open.spotify.com/album/27aGpGiOhFsVFH9GJEniQy), [FreeMusicArchive](http://freemusicarchive.org/music/Kai_Engel/Chapter_One__Cold)
+
 ## Solo soundtracks in the list 📝
 
 * The Last of the Mohicans: Promontory 👉🏼 [Link](https://www.youtube.com/watch?v=9tjdswqGGVg)
