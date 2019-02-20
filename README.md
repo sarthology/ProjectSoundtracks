@@ -76,6 +76,14 @@
 
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/2mEsRyomJ7okqZYllqTx3f), [FreeMusicArchive](https://freemusicarchive.org/music/Kai_Engel/Chapter_Two__Mild/)
 
+### 11. Chapter Three/Warm
+🎼 **Music Composer:**  Kai Engel
+
+👍🏻 **Best for:**  Focus
+
+🔗 **Links:**  [Spotify](https://open.spotify.com/album/2ScPB88ZR8WBAp04RaQ0og), [FreeMusicArchive](https://freemusicarchive.org/music/Kai_Engel/Chapter_Three__Warm/)
+
+
 ## Solo soundtracks in the list 📝
 
 * The Last of the Mohicans: Promontory 👉🏼 [Link](https://www.youtube.com/watch?v=9tjdswqGGVg)
