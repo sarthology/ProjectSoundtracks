@@ -9,7 +9,7 @@
 
 👍🏻 **Best for:**  Brainstorming and Discussions 🧠
 
-🔗 **Links:**  [Spotify](https://open.spotify.com/album/5OVGwMCexoHavOar6v4al5?si=mB-z6sQVT7aFtBd8IsW9Cw), [Apple Music](https://itunes.apple.com/in/album/interstellar-original-motion-picture-soundtrack-deluxe/944005211), [Youtube](https://www.youtube.com/watch?v=H5EnhW_HQqA)
+🔗 **Links:**  [Spotify](https://open.spotify.com/album/5OVGwMCexoHavOar6v4al5?si=mB-z6sQVT7aFtBd8IsW9Cw), [Apple Music](https://itunes.apple.com/in/album/interstellar-original-motion-picture-soundtrack-deluxe/944005211), [Youtube](https://www.youtube.com/watch?v=H5EnhW_HQqA), [SoundCloud](https://soundcloud.com/irfanahmad/interstellar-full-soundtrack-deluxe-edition-hans-zimmer)
 
 ### 2. Pirates of the Caribbean ⛵️
 🎼 **Music Composer:**  Hans Zimmer
@@ -23,14 +23,14 @@
 
 👍🏻 **Best for:**  High Concentration Works 🔥
 
-🔗 **Links:**  [Spotify](https://open.spotify.com/album/0q3KEEwGPGPPnXJNQ32Wyz?si=osGPcJ4-SnqgFf8xd375JQ), [Apple Music](https://itunes.apple.com/in/album/dark-knight-rises-original-motion-picture-soundtrack/541003975) , [Youtube](https://www.youtube.com/watch?v=0b8lvUsHnDY)
+🔗 **Links:**  [Spotify](https://open.spotify.com/album/0q3KEEwGPGPPnXJNQ32Wyz?si=osGPcJ4-SnqgFf8xd375JQ), [Apple Music](https://itunes.apple.com/in/album/dark-knight-rises-original-motion-picture-soundtrack/541003975) , [Youtube](https://www.youtube.com/watch?v=0b8lvUsHnDY), [SoundCloud](https://soundcloud.com/kotiko-ejibashvili/the-dark-knight-rises-original)
 
 ### 4. The Theory of Everything 🌌
 🎼 **Music Composer:**  Jóhann Jóhannsson
 
 👍🏻 **Best for:**  Deep thinking and Creative work ✍🏼
 
-🔗 **Links:**  [Spotify](https://open.spotify.com/album/2R2FZbfCSFBb1piR159xN0?si=OqGs0RNNRyCGsNxKhB9pvg), [Apple Music](https://itunes.apple.com/in/album/theory-everything-original-motion-picture-soundtrack/930744739), [Youtube](https://www.youtube.com/watch?v=55885Qnt7Ps)
+🔗 **Links:**  [Spotify](https://open.spotify.com/album/2R2FZbfCSFBb1piR159xN0?si=OqGs0RNNRyCGsNxKhB9pvg), [Apple Music](https://itunes.apple.com/in/album/theory-everything-original-motion-picture-soundtrack/930744739), [Youtube](https://www.youtube.com/watch?v=55885Qnt7Ps), [SoundCloud](https://soundcloud.com/mazonna-nabeel/the-theory-of-everything-full-soundtrack)
 
 ### 5. Hobbit/Lords of the ring 🌋
 🎼 **Music Composer:**  Howard Shore
