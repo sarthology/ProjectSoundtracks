@@ -84,6 +84,14 @@
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/2ScPB88ZR8WBAp04RaQ0og), [FreeMusicArchive](https://freemusicarchive.org/music/Kai_Engel/Chapter_Three__Warm/)
 
 
+### 12. Tron Legacy Soundtrack 🥏
+🎼 **Music Composer:**  Daft Punk
+
+👍🏻 **Best for:**  High Concentration Work 🔥
+
+🔗 **Links:**  [Spotify](https://open.spotify.com/album/4US3nmuLIKELhVZdBPiKxx), [Apple Music](https://itunes.apple.com/us/album/tron-legacy-original-motion-picture-soundtrack/406192538), [Youtube](https://www.youtube.com/watch?v=b8OELzmpgZo&list=PLA0297420F2C5554C)
+
+
 ## Solo soundtracks in the list 📝
 
 * The Last of the Mohicans: Promontory 👉🏼 [Link](https://www.youtube.com/watch?v=9tjdswqGGVg)
