@@ -83,6 +83,14 @@
 
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/2ScPB88ZR8WBAp04RaQ0og), [FreeMusicArchive](https://freemusicarchive.org/music/Kai_Engel/Chapter_Three__Warm/)
 
+### 12. Journey OST 🦇
+🎼 **Music Composer:**  Austin Wintory
+
+👍🏻 **Best for:**  High Concentration Works 🔥
+
+🔗 **Links:** [Youtube](https://www.youtube.com/watch?v=M3hFN8UrBPw)
+
+
 
 ## Solo soundtracks in the list 📝
 
