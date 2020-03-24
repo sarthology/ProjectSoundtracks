@@ -108,6 +108,8 @@
 
 * Game of Thrones: Light of the Seven  👉🏼 [Link](https://www.youtube.com/watch?v=pS-gbqbVd8c)
 
+* Game of Thrones: The Night King  👉🏼 [Link](https://www.youtube.com/watch?v=k1frgt0D_f4)
+
 * The Last Samurai: Red Warrior  👉🏼 [Link](https://www.youtube.com/watch?v=4ZMsz3gDrwA)
 
 * Rush: Lost but won 👉🏼 [Link](https://www.youtube.com/watch?v=5O9q0NB2HL0)
