@@ -100,6 +100,14 @@
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/4US3nmuLIKELhVZdBPiKxx), [Apple Music](https://itunes.apple.com/us/album/tron-legacy-original-motion-picture-soundtrack/406192538), [Youtube](https://www.youtube.com/watch?v=b8OELzmpgZo&list=PLA0297420F2C5554C)
 
 
+### 14. Melophobia 🦇
+🎼 **Music Composer:**  Cage The Elephant
+
+👍🏻 **Best for:**  Lightening your mood 🔥
+
+🔗 **Links:**  [Spotify](https://open.spotify.com/album/4EK8gtQfdVsmDTji7gBFlz), [Apple Music](https://music.apple.com/us/album/melophobia/683346293) , [Youtube](https://www.youtube.com/watch?v=z8DOKTX4EFY&list=PLtV7_bahTK9PEioGJ7QMzT4PsfzBdeZRC)
+
+
 ## Solo soundtracks in the list 📝
 
 * The Last of the Mohicans: Promontory 👉🏼 [Link](https://www.youtube.com/watch?v=9tjdswqGGVg)
