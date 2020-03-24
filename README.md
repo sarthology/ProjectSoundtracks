@@ -165,3 +165,8 @@
 
 * Lush Lofi by Spotify, 👉🏼 [Spotify](https://open.spotify.com/user/spotify/playlist/37i9dQZF1DXc8kgYqQLMfH?si=koy_md9BRMahmkqNOZh3eg)
 
+* Late Night Jazz by Spotify, 👉🏼 [Spotify](https://open.spotify.com/playlist/37i9dQZF1DX4wta20PHgwo?si=Nq7UPehUQ8Wgh3bL0OICow)
+
+* Vaporwave by After Eating, 👉🏼 [Spotify](https://open.spotify.com/playlist/17HYiAIcwlDEg5RgVkm4L7?si=t0V-XmsXRIOX9AgajKc0zA)
+
+* Vaporwave (Long) by George Clanton, 👉🏼 [Spotify](https://open.spotify.com/playlist/0nQISPetnTE1srJa9FDY1t?si=eguIgU71RGK-X4YVbBXniw)
