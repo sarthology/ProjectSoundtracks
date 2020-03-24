@@ -165,3 +165,19 @@
 
 * Lush Lofi by Spotify, 👉🏼 [Spotify](https://open.spotify.com/user/spotify/playlist/37i9dQZF1DXc8kgYqQLMfH?si=koy_md9BRMahmkqNOZh3eg)
 
+## Bob Dylan 🔥
+
+👍🏻 **Best for:** Relaxing 🎶
+
+🔗 **Links:** [YouTube](https://www.youtube.com/playlist?list=PLknidvzcLCRE_mLxVXuCmgXHtvopESW9U)
+[Spotify](https://open.spotify.com/artist/74ASZWbe4lXaubB36ztrGX)  
+
+## Mix
+
+👍🏻 **Best for:** High Productivity🔥
+
+🔗 **Links:** [YouTube](https://www.youtube.com/playlist?list=PLhEeW1TOZ_gU8wRLd_rnbUiHH30MtFtQR)  
+
+
+
+
