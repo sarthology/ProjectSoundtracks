@@ -90,14 +90,19 @@
 
 🔗 **Links:** [Youtube](https://www.youtube.com/watch?v=M3hFN8UrBPw)
 
-
-
 ### 13. Tron Legacy Soundtrack 🥏
 🎼 **Music Composer:**  Daft Punk
 
 👍🏻 **Best for:**  High Concentration Work 🔥
 
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/4US3nmuLIKELhVZdBPiKxx), [Apple Music](https://itunes.apple.com/us/album/tron-legacy-original-motion-picture-soundtrack/406192538), [Youtube](https://www.youtube.com/watch?v=b8OELzmpgZo&list=PLA0297420F2C5554C)
+
+### 14. Ori and the Will of Wisps Soundtrack 👾
+🎼 **Music Composer:**  Gareth Coker
+
+👍🏻 **Best for:**  Focus 🔥
+
+🔗 **Links:**  [Spotify](https://open.spotify.com/album/0BRICN5TGMT1WqFcZkYOaF), [Apple Music](https://music.apple.com/de/album/ori-and-the-will-of-the-wisps-original-soundtrack-recording/1500849132), [Amazon Music](https://music.amazon.de/albums/B0859MRLYF?ref=dm_sh_ef24-d18e-dmcp-97c7-87d93&musicTerritory=DE&marketplaceId=A1PA6795UKMFR9), [Youtube](https://www.youtube.com/watch?v=0NhwEQEercE)
 
 
 ## Solo soundtracks in the list 📝
