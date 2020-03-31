@@ -91,7 +91,6 @@
 🔗 **Links:** [Youtube](https://www.youtube.com/watch?v=M3hFN8UrBPw)
 
 
-
 ### 13. Tron Legacy Soundtrack 🥏
 🎼 **Music Composer:**  Daft Punk
 
@@ -99,6 +98,13 @@
 
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/4US3nmuLIKELhVZdBPiKxx), [Apple Music](https://itunes.apple.com/us/album/tron-legacy-original-motion-picture-soundtrack/406192538), [Youtube](https://www.youtube.com/watch?v=b8OELzmpgZo&list=PLA0297420F2C5554C)
 
+### 14. Memoirs of a Geisha OST 🎎
+
+🎼 **Music Composer:**  John Williams
+
+👍🏻 **Best for:**  Focus 🧠
+
+🔗 **Links:**  [Spotify](https://open.spotify.com/album/4wcOu3JLqjWjcFpMwKS69C?si=FQXvzg3bQx2qPw1JdRx6oQ), [Apple Music](https://music.apple.com/us/album/memoirs-of-a-geisha-original-motion-picture-soundtrack/539722077), [Youtube](https://www.youtube.com/watch?v=7MyfeeSsFGk)
 
 ## Solo soundtracks in the list 📝
 
@@ -120,7 +126,7 @@
 * Arrival: The Swimmer 👉🏼 [Link](https://www.youtube.com/watch?v=rdiLxyGH8Lg)
 
 * Ludovico einaudi: Nuvole bianche 👉🏼 [Link](https://www.youtube.com/watch?v=kcihcYEOeic)
- 
+
 * Dexter: Hide Your Tears 👉🏼 [Link](https://www.youtube.com/watch?v=ekeBs9uTu4E)
 
 * The Soloist: A city Symphony 👉🏼 [Link](https://www.youtube.com/watch?v=KbpfsHA4bAE)
