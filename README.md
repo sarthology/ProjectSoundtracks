@@ -98,13 +98,23 @@
 
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/4US3nmuLIKELhVZdBPiKxx), [Apple Music](https://itunes.apple.com/us/album/tron-legacy-original-motion-picture-soundtrack/406192538), [Youtube](https://www.youtube.com/watch?v=b8OELzmpgZo&list=PLA0297420F2C5554C)
 
-### 14. Memoirs of a Geisha OST 🎎
+
+### 14. Ori and the Will of Wisps Soundtrack 👾
+🎼 **Music Composer:**  Gareth Coker
+
+👍🏻 **Best for:**  Focus 🔥
+
+🔗 **Links:**  [Spotify](https://open.spotify.com/album/0BRICN5TGMT1WqFcZkYOaF), [Apple Music](https://music.apple.com/de/album/ori-and-the-will-of-the-wisps-original-soundtrack-recording/1500849132), [Amazon Music](https://music.amazon.de/albums/B0859MRLYF?ref=dm_sh_ef24-d18e-dmcp-97c7-87d93&musicTerritory=DE&marketplaceId=A1PA6795UKMFR9), [Youtube](https://www.youtube.com/watch?v=0NhwEQEercE)
+
+
+### 15. Memoirs of a Geisha OST 🎎
 
 🎼 **Music Composer:**  John Williams
 
 👍🏻 **Best for:**  Focus 🧠
 
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/4wcOu3JLqjWjcFpMwKS69C?si=FQXvzg3bQx2qPw1JdRx6oQ), [Apple Music](https://music.apple.com/us/album/memoirs-of-a-geisha-original-motion-picture-soundtrack/539722077), [Youtube](https://www.youtube.com/watch?v=7MyfeeSsFGk)
+
 
 ## Solo soundtracks in the list 📝
 
