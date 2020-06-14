@@ -115,7 +115,7 @@
 
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/4wcOu3JLqjWjcFpMwKS69C?si=FQXvzg3bQx2qPw1JdRx6oQ), [Apple Music](https://music.apple.com/us/album/memoirs-of-a-geisha-original-motion-picture-soundtrack/539722077), [Youtube](https://www.youtube.com/watch?v=7MyfeeSsFGk)
 
-### 16. The Crimson Wing: Mystery of the Flamingos 🦩🐦
+### 16. The Crimson Wing: Mystery of the Flamingos 🦩
 
 🎼 **Music Composer:**  The Cinematic Orchestra
 
