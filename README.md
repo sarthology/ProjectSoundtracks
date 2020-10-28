@@ -115,6 +115,13 @@
 
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/4wcOu3JLqjWjcFpMwKS69C?si=FQXvzg3bQx2qPw1JdRx6oQ), [Apple Music](https://music.apple.com/us/album/memoirs-of-a-geisha-original-motion-picture-soundtrack/539722077), [Youtube](https://www.youtube.com/watch?v=7MyfeeSsFGk)
 
+### 16. Project Reality Original Soundtrack v1.0 👾 
+
+🎼 **Music Composer:**  Scott Tobin
+
+👍🏻 **Best for:**  Focus 🧠
+
+🔗 **Links:**  [Spotify](https://open.spotify.com/album/4wcOu3JLqjWjcFpMwKS69C?si=FQXvzg3bQx2qPw1JdRx6oQ), [Apple Music](https://music.apple.com/us/album/project-reality-original-soundtrack-v1-0/775826832), [Youtube](https://www.youtube.com/playlist?list=OLAK5uy_kMKSKTuLsYZ8IxlZ9DiO4wGXASBjyfcrI)
 
 ## Solo soundtracks in the list 📝
 
