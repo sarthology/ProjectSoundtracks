@@ -115,6 +115,7 @@
 
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/4wcOu3JLqjWjcFpMwKS69C?si=FQXvzg3bQx2qPw1JdRx6oQ), [Apple Music](https://music.apple.com/us/album/memoirs-of-a-geisha-original-motion-picture-soundtrack/539722077), [Youtube](https://www.youtube.com/watch?v=7MyfeeSsFGk)
 
+
 ### 16. Project Reality Original Soundtrack v1.0 👾 
 
 🎼 **Music Composer:**  Scott Tobin
@@ -122,6 +123,16 @@
 👍🏻 **Best for:**  Focus 🧠
 
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/4wcOu3JLqjWjcFpMwKS69C?si=FQXvzg3bQx2qPw1JdRx6oQ), [Apple Music](https://music.apple.com/us/album/project-reality-original-soundtrack-v1-0/775826832), [Youtube](https://www.youtube.com/playlist?list=OLAK5uy_kMKSKTuLsYZ8IxlZ9DiO4wGXASBjyfcrI), [Amazon UK](https://www.amazon.co.uk/Project-Reality-Original-Soundtrack-v1-0/dp/B00H5FGJG2/ref=sr_1_2)
+
+
+### 17. The Crimson Wing: Mystery of the Flamingos 🦩
+
+🎼 **Music Composer:**  The Cinematic Orchestra
+
+👍🏻 **Best for:**  Focus and for Concentration 🧠
+
+🔗 **Links:**  [Spotify](https://open.spotify.com/album/1XkXmvhIZzIZDIg70zaLMW?highlight=spotify:track:0Gr2XQOIMaaUH86iOrWGur), [Youtube](https://www.youtube.com/watch?v=4temlIUPxlQ&list=PLq3WYzlR9ChX9PvxXc9byYHZEY2MQzrsS)
+
 
 ## Solo soundtracks in the list 📝
 
