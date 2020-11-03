@@ -134,15 +134,6 @@
 🔗 **Links:**  [Spotify](https://open.spotify.com/album/1XkXmvhIZzIZDIg70zaLMW?highlight=spotify:track:0Gr2XQOIMaaUH86iOrWGur), [Youtube](https://www.youtube.com/watch?v=4temlIUPxlQ&list=PLq3WYzlR9ChX9PvxXc9byYHZEY2MQzrsS)
 
 
-### 18. Melophobia  🦇
-
-🎼 **Music Composer:**  Cage the Elephant 
-
-👍🏻 **Best for:**  Lifting your mood ☀️
-
-🔗 **Links:**  [Spotify](https://open.spotify.com/album/4EK8gtQfdVsmDTji7gBFlz), [Apple Music](https://music.apple.com/us/album/melophobia/683346293), [Youtube](https://www.youtube.com/playlist?list=OLAK5uy_kdMzcHs_e8Bfxkcuy-TxFmwqoUGxtqAYg)
-
-
 ## Solo soundtracks in the list 📝
 
 * The Last of the Mohicans: Promontory 👉🏼 [Link](https://www.youtube.com/watch?v=9tjdswqGGVg)
